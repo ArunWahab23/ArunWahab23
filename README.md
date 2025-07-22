@@ -8,7 +8,7 @@
 
 ## 🚀 About Me
 
-💼 **Professional Background:** 12+ years of client management experience with proven track record of revenue generation and business growth within the recruitment space
+💼 **Professional Background:** 12+ years of stakeholder management understanding the needs of a business to maintain scale.
 
 🔭 **Currently Building:** Tech products that deliver real value to users with focus on user experience and scalability
 
