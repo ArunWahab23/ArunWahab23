@@ -15,7 +15,7 @@
 
 ---
 
-## 🚀 **The Value I Bring to Your Team**
+## 🚀 **The Value I Bring to Our Team**
 
 <table>
 <tr>
